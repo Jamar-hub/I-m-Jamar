@@ -19,6 +19,6 @@ I’m a technical content creator and production leader focused on DevRel, AI wo
 10+ years in live production, multimedia storytelling, federal communications, livestream production, and technical operations.
 
 ## Connect
-LinkedIn
+LinkedIn https://www.linkedin.com/in/jamar-singletary/
 YouTube
-Portfolio
+Portfolio Jsingletary.com
