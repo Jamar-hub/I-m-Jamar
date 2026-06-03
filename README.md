@@ -20,5 +20,4 @@ I’m a technical content creator and production leader focused on DevRel, AI wo
 
 ## Connect
 LinkedIn https://www.linkedin.com/in/jamar-singletary/
-YouTube
-Portfolio Jsingletary.com
+Portfolio www.Jsingletary.com
